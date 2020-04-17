@@ -9,4 +9,3 @@ since the start of remote classes.  While Silicon Valley is doing okay,
 so are other parts of the nation.  Just take a peek below.
 
 
-**Handshake In-Demand Companies**
