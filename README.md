@@ -6,7 +6,8 @@ To all the students who have spent the last month wondering:
 The answer is an emphatic YES! Below, check out the companies that are 
 still hiring, including the 175+ companies on Handshake with active posts
 since the start of remote classes.  While Silicon Valley is doing okay,
-so are other parts of the nation.  Just take a peek below or visit 
-https://remotestudents.co/#listings for open startup internships.
+so are other parts of the nation.  Just take a peek below that we update
+regularly or visit https://remotestudents.co/#listings for open startup internships.
+
 
 
